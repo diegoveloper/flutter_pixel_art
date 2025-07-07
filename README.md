@@ -21,7 +21,7 @@ https://youtube.com/live/a-FY22SmV4s
 
 # Full Video Tutorial (Spanish)
 
-[![](http://img.youtube.com/vi/eLjB43PaIw0/0.jpg)](https://www.youtube.com/watch?v=eLjB43PaIw0 )
+[![](http://img.youtube.com/vi/a-FY22SmV4s/0.jpg)](https://www.youtube.com/watch?v=a-FY22SmV4s )
 
 ## Join to unlock all the past live videos and join our Discord group!
 
